@@ -23,8 +23,8 @@ Some "peeks" at our services:
 Thank you in advance for your time and consideration. Your valuable insights are highly appreciated! We can't wait to bring the future of shopping to you with Futurify Wallet.
 
 
-Check us out: https://www.tgcollective.xyz/
-Keep up with us by joining our discord server: https://discord.com/invite/RtTG2pqazM
+- Check us out: https://www.tgcollective.xyz/
+- Keep up with us by joining our discord server: https://discord.com/invite/RtTG2pqazM
 
 
 
